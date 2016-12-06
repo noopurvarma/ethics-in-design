@@ -212,7 +212,7 @@ http://peterasaro.org/writing/Asaro%20Modeling%20Moral%20User.pdf
 
 [Paralymipics Spanish Basketball team scam](http://blogs.telegraph.co.uk/sport/garethadavies/100024764/will-greatest-paralympic-scandal-ever-go-away-as-intellectually-disabled-athletes-return-in-2012/)
 
-The Art of Being a Hyporcrite Designer(http://www.vanschneider.com/can-good-design-be-bad-design/)
+[The Art of Being a Hyporcrite Designer](http://www.vanschneider.com/can-good-design-be-bad-design/)
 
 ####Books
 
